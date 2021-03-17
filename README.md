@@ -1,0 +1,1 @@
+# Properties_of_Normal_Distribution
